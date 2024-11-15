@@ -76,6 +76,6 @@ A: Tidak ada, versi modifikasi ini sepenuhnya bebas iklan.
 ## Unduh Tank Stars Mod APK Unlimited Money  
 Klik tautan di bawah ini untuk menikmati **Tank Stars Mod APK VIP Unlocked** dan bawa pengalaman bermain Anda ke level berikutnya.  
 
-- [Unduh Tank Stars Mod APK](#)  
+- [Unduh Tank Stars Mod APK](https://modhello.com/tank-stars/#)  
 
 Mulai petualangan Anda sekarang dan jadilah komandan tank terbaik!  
